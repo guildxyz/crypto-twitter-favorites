@@ -43,6 +43,7 @@
 [CryptoKaleo](https://x.com/CryptoKaleo)
 [Crypto_Ed_NL](https://x.com/Crypto_Ed_NL)
 [Cryptoyieldinfo](https://x.com/Cryptoyieldinfo)
+[Cupojoseph](https://x.com/CupOJoseph)
 [DCbuild3r](https://x.com/DCbuild3r)
 [Darrenlautf](https://x.com/Darrenlautf)
 [DeFiDave22](https://x.com/DeFiDave22)
